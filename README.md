@@ -5,4 +5,4 @@
 - How to reach me:
   email: rorrier@gmail.com
 - Pronouns: he/him
-- Fun fact: Im studying to help develop prostheric limbs for atheltes!
+- Fun fact: Im studying to help develop prosthetic limbs for atheltes!
